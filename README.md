@@ -14,13 +14,13 @@ i am in class 9
 
 #hobbies.
 
-1.football
+1.football⚽🦶🏼
 
 
-2.coding
+2.coding💻⌨️🖱️👨🏼‍💻
 
 
-3.playing games
+3.playing games🎮
 
 
 #places i would like to visit.
